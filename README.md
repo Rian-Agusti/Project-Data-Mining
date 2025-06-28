@@ -1,4 +1,4 @@
-izin mengumpulkan pak, untuk link videonya saya sertakan pada file readme agar bapak bisa langsung melihat di dashboard dari github yang saya berikan untuk kinerja kelompok saya pak terimakasih
+izin mengumpulkan pak, untuk link videonya saya sertakan pada file readme agar bapak bisa langsung melihat di dashboard dari github yang saya berikan untuk kinerja kelompok saya pak terimakasih.
 
 Nama Anggota Kelompok :
 1. Muhammad Ikhsan Izra Akbar
